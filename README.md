@@ -3,7 +3,7 @@
 
 - [ ] Looks like
 
-[![image.png](https://i.postimg.cc/ZKKMXpty/image.png)](https://postimg.cc/F18pLfK9)
+[![image.png](https://i.postimg.cc/WzQqm00f/image.png)](https://postimg.cc/kRv5q61x)
 
 # LinkedIn
 - [ ] https://www.linkedin.com/in/eder-manuel-fornero/
